@@ -11,5 +11,3 @@ I believe that education and collaboration are the pillars for human and organiz
 
 Discovering me a data driven and performed on each line of code learned and executed. Currently, looking for an opportunity to enter the technology market.
 
-Xyz
-
